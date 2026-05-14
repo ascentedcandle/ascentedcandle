@@ -1,5 +1,5 @@
 > ### about me !! <img src="https://64.media.tumblr.com/f4a8f36f1cdc27b573a5eb07315f82b9/f8c413e838a06160-04/s75x75_c1/1d7c6fb7280d8e0b8efe0fc3d88fbf106647814f.gifv">
-<p align="center"> hi, our name is keter/fears. p-did system, so some of our ponies might belong to specific alters, but itll mostly be me, talloran/james/stanley!!
+<p align="center"> hi, our name is keter/fears. p-did system, so some of our ponies might belong to specific alters, but itll mostly be me, talloran/kevin!!
 <br> assuming you came from pt, feel free to come up to me ingame and chat with me! id love to make more friends who play pt!!</p>
 <p> <b>BYI:</b> i have npd which means i will get annoyed if you act like youre better than me as a joke. also, dont try to use this against me, it wont work and i can tell when people are just trying to make me mad. i also tend to be competitive when it comes to my interests, DO NOT let this stop you from claiming that you are the biggest fan of any of my interests or favorite characters however, i am actively trying to unlearn the mindset that interest is ownership and this actually helps me in that, so i appreciate it!! feel free to ask for my age i just dont want to put it here.
   <br>
