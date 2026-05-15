@@ -13,4 +13,4 @@
 <br><br><b>I LISTEN TO A LOT OF ARTISTS and i do not have the time to do a background check on everyone!! if any of these artists are evil or something let me know. also there are certain artists here who i know have problems but i have my own reasons that i still listen to them, or i listen in a way that doesnt support them.</b></p>
 
 # 
-james talloran, paul leskowitz, kevin of desert bluffs, martin blackwood, and pioneer 9 are literally me 🗡️🎮🌇☁️🛰️ 
+james talloran, paul leskowitz, kevin of desert bluffs, martin blackwood, and pioneer 9 are literally me 🗡️🌼🌇☁️🛰️ 
